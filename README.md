@@ -1,0 +1,2 @@
+# GloryKk
+INDOANGELSEC𝐁𝐎𝐓
